@@ -3,6 +3,7 @@ The God King from the Infinity Blade Series
 
 I really loved this game, and after finding a model, felt inspired to do this, tried my best
 ![Screenshot 2024-04-11 222204](https://github.com/Tepoxyy/Raidriar/assets/166188075/9807b562-b2b1-4160-a72d-1c63acbd38c1)
+
 Yes the sword is in the right hand and shield in left hand.
 
 ![Screenshot 2024-04-11 222123](https://github.com/Tepoxyy/Raidriar/assets/166188075/b51bd53b-773d-4a8c-91cf-54627ffedf53)
